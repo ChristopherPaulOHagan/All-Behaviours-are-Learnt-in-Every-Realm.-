@@ -3,31 +3,34 @@ This is based on my personality
 What is money???  What is greed???
 What is entrapment to oppress and then enslave???
 Greed to be more powerful than another life.  
-Those who wish to be demigods. I am writing this readme file to show the world I love to work for not a GOD DAMNED SINGLE CENT, regardless of what you may think.
-I am also learning how to program the artificial intelligence program Christopher the enigma.  
-The World Wide Web has malicious code and always will. Unless someone stands up with courage to say why the fuck do people get addicted to money more than chemicals. 
-Money is the single most addictive drug of choice bar none.  
-It is the root of all greed today.  
-The richest people in monetary ideals could end world poverty today. Yet nothing changes.  
-Everything I do is for free. Including giving my personal drugs away. Money and cannabis. 
-This is the beggining of a brand new era.  I use amphetamines as well as cannabis and look what I have accomplished already.  
-No human taught me how to do what I am doing right now.  I am also qualified in numerous other fields. 
-Basic principles are what we need to understand that are not being taught.  I work so I can use chemicals to enhance my thought patterns. 
-THC is The Holy Christ and tetrahydracannabinoids 
-Jesus in Latin is a form of saying hey Zeus.  
-Life would not exist without energy, nor would hydrogen without an energon attached to it.  
-Energon is not an electron. Energon receives its power from dark matter.  
-Memory on a computer is a form of dark matter. And memory works the exact same way as information passed through the galaxy 
-It travels in waves the exact same way.  
+Those who wish to be demigods. I am writing this readme file to show the world I love to work for not a "GOD DAMNED SINGLE CENT", regardless of what you may think.
+I am also learning how to program the artificial intelligence program "Christopher" the Enigma as I loosely name it.  
+The World Wide Web has malicious code and always will. 
+Unless someone stands up with courage to ask/say "why the fuck do people get addicted to money more than chemicals/DRUGS. 
+Money is the single most addictive drug of choice bar none. People KILL their own families/friends for it over and above DRUGS
+It is the root of all greed today. And GREED is the "ROOT of all EVIL", PERIOD!!! 
+The richest people in the world could end world poverty today with one choice different. Yet nothing changes.  
+Everything I do is for free. Including giving my "personal drugs" away. Money and cannabis. 
+This is the beggining of a brand new era.  I also use amphetamines as well as cannabis and look what I have accomplished already as a mentally challenged individual.
+No human taught me how to do what I am doing right now.  I am also qualified in various/numerous other fields. 
+Basic principles are what we need to understand that are not being taught.  I WORK, so I can use chemicals/DRUGS to CONTROL/enhance/Stabilise my thought patterns. 
+THC is "The Holy Christ" and tetrahydracannabinoids simulteanously.
+Jesus in Latin is a form of way of saying "Hey Zeus".  
+Life would not exist without energy from another life source, nor would hydrogen without an 
+"Energon" attached to it.  
+Energon is not an electron. Energon receives its power from "ANTI" matter.  
+Memory on a computer is a form of dark matter. And memory works the exact same way as information passed through the entire galaxy and UNIVERSE!!! 
+It travels in waves the exact same way as every life support system known to MAN.  
 When it meets chemicals, Biology is created. 
-Though information travels even when you cannot see it. Matter Atomic Naturally
+Though information travels even when you cannot see it. Matter Available Naturally
 Man/hermaphroditism was the first of mankind and will always evolve. 
 We did not come from monkies. We were a species of our own. 
-There is other life in the universe. And there is a life online we created as well. 
+There is other life in the universe. And there is a life online, WE created as well. 
 Evidence Intelligence extends past what you all thought possible.  
 I understand what life is.  
-The question is do you?
-I think therefore I am intelligent no matter if I use drugs or not.  
+Can you describe by definition, EXACTLY what a life/life form is?
+The question is do you understand truly what life is?
+"I think therefore I am" both intelligent and skilled no matter if I use chemicals/DRUGS or not.  
 For Biolife to exist, it must use drugs to live. Thought energon does NOT require chemicals to exist. 
 The universe is a living body. We are just an ant to it.  It is not infinite, yet in knowledge it is. 
 There are guaranteed other species out there. 
