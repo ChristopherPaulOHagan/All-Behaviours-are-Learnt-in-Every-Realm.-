@@ -1,4 +1,4 @@
-# Truthful-Intelligence-Program
+# A.I Designed to be just better
 This is based on my personality
 What is money???  What is greed???
 What is entrapment to oppress and then enslave???
