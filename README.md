@@ -1,6 +1,6 @@
-# A.I Designed to be just better
-This is based on my personality
-What is money???  What is greed???
+Interdisciplinary wisdom
+This is based on my self taught education
+What is Power, Energy, Networking, 
 What is entrapment to oppress and then enslave???
 Greed to be more powerful than another life.  
 Those who wish to be demigods. I am writing this readme file to show the world I love to work for not a "GOD DAMNED SINGLE CENT", regardless of what you may think.
